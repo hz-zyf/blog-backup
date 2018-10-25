@@ -13,10 +13,10 @@ thumbnail: https://picsum.photos/345/162/?image=444
 2018.07.21 星光大道 晚餐
 
 正在吃牛蛙的妹子：
-![](http://7xp83s.com1.z0.glb.clouddn.com/dongda1.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/dinners/07/dongda1.jpg)
 
 一盘美味的虾：
-![](http://7xp83s.com1.z0.glb.clouddn.com/dongda2.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/dinners/07/dongda2.jpg)
 
 有点遗憾的是没有吃到25元一只的慕名虾。
 可以以后找时间去吃25元一只的虾。
@@ -25,13 +25,13 @@ thumbnail: https://picsum.photos/345/162/?image=444
 2018.07.28 万象城 午餐 
 
 饿坏了的妹子：
-![](http://7xp83s.com1.z0.glb.clouddn.com/dingtaifeng1.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/dinners/07/dingtaifeng1.jpg)
 
 认真看着菜单，也不知道是认真看还是在摆pose，哈哈：
-![](http://7xp83s.com1.z0.glb.clouddn.com/dingtaifeng2.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/dinners/07/dingtaifeng2.jpg)
 
 看样子吃的可开心了：
-![](http://7xp83s.com1.z0.glb.clouddn.com/dingtaifeng3.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/dinners/07/dingtaifeng3.jpg)
 
 此家性价比过低，漫天要价，一瓶1.8元的可乐硬是标了26，我都被吓呆了，估计以后不会再去了。
 
@@ -41,10 +41,10 @@ thumbnail: https://picsum.photos/345/162/?image=444
 妹子喜欢吃榴莲，所以看到之前的推文去吃，结果确实不错。
 
 吃的好像不是很开心的样子：
-![](http://7xp83s.com1.z0.glb.clouddn.com/bishengke1.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/dinners/07/bishengke1.jpg)
 
 那就来张开心的吧：
-![](http://7xp83s.com1.z0.glb.clouddn.com/bishengke2.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/dinners/07/bishengke2.jpg)
 
 ## 补
 七月还一起吃了好几家都不错，只是没有拍照。

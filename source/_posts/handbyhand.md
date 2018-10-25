@@ -25,7 +25,7 @@ jamie：好呀，如果你输了，你就要当面和我表白（微笑）
 
 小区门口，马路对面，一个打了鸡血的少年等待着...
 
-![](http://7xp83s.com1.z0.glb.clouddn.com/%E8%8A%B1.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/handbyhand/flower.jpg)
 
 这个少年拿着一束花向心爱的姑娘表白，虽然他在心里准备了无数次，但是还是会很紧张，一度忘词。不过这个女孩没有嫌弃他，还是答应了他，自此，一份相伴契约已然生成。
 
@@ -33,20 +33,20 @@ jamie：好呀，如果你输了，你就要当面和我表白（微笑）
 
 在男孩握住他心爱女孩的那刻，他心里已经认定了这个女孩，他决定用余生去...
 
-![](http://7xp83s.com1.z0.glb.clouddn.com/qianshou.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/handbyhand/qianshou.jpg)
 
 ### 庆祝一下
 
 牵着妹子，去盒马吃顿海鲜大餐庆祝这个历史性的日子。
 
 大波龙和漂亮的手：
-![](http://7xp83s.com1.z0.glb.clouddn.com/bolong.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/handbyhand//bolong.jpg)
 
 澳龙和漂亮的手：
-![](http://7xp83s.com1.z0.glb.clouddn.com/aolong.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/handbyhand//aolong.jpg)
 
 加工后的海鲜大餐和我们都喜欢喝的胡萝卜汁：
-![](http://7xp83s.com1.z0.glb.clouddn.com/changjiaoxie.jpg)
+![](https://web-storage-1257894433.cos.ap-shanghai.myqcloud.com/holdyourhand/handbyhand//changjiaoxie.jpg)
 
 ### 夜游西湖
 
