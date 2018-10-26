@@ -80,5 +80,6 @@ theme: hueman
 ## Docs: https://hexo.io/docs/deployment.html
 deploy:
   type: git 
-  repo: git@github.com:hz-zyf/hz-zyf.github.io.git
+  # repo: git@github.com:hz-zyf/hz-zyf.github.io.git
+  repo: https://github.com/hz-zyf/hz-zyf.github.io.git
   branch: master
